@@ -1,1 +1,1 @@
-# Genshin-Injector
+her şey bitti, kaybettim.
